@@ -10,6 +10,8 @@
 
 🤝 Toujours ouvert à la collaboration avec des développeurs pour des projets captivants.
 
+ Email: enockdjoudas@gmail.com 
+
 🌟 Langages et outils :
 
 #### 🖥️ Langages :  
